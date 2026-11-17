@@ -1,1 +1,1 @@
-kallooppara-travels.github.io
+http://kallooppara-travels.github.io
